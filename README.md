@@ -17,5 +17,5 @@ Twitter/X: https://twitter.com/TheRealTralty
 Instagram: https://www.instagram.com/therealtralty/
 
 
-[<img src="https://www.bisecthosting.com/images/CF/Adventure_of_Tech_I_Remastered/BH_AT1R_promo.webp">](https://bisecthosting.com/Tralty)
-Want to have an exciting gaming session with your friends and family? Host your Adventure of Tech I Remastered server with BisectHosting, the leading provider with over ten years of experience and presence in 20 global locations. Their automated modpack installation and update system ensures that your server stays up-to-date, and their 24/7 support team is always available to assist you with any game-related queries. Remember to use code 'Tralty' for a 25% discount on your first month as a new customer and start your gaming adventure today!
+[<img src="https://www.bisecthosting.com/images/CF/Adventure_of_Tech_I_Remastered/BH_AT1R_promo.webp">](https://bisecthosting.com/gio)
+Want to have an exciting gaming session with your friends and family? Host your Adventure of Tech I Remastered server with BisectHosting, the leading provider with over ten years of experience and presence in 20 global locations. Their automated modpack installation and update system ensures that your server stays up-to-date, and their 24/7 support team is always available to assist you with any game-related queries. Remember to use code 'gio' for a 25% discount on your first month as a new customer and start your gaming adventure today!
